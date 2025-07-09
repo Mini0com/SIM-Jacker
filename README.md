@@ -20,3 +20,7 @@ PROVIDE LOCAL INFO – Gets location or device info.
 ⚠️ Simjacker allows remote tracking, surveillance, and SIM-based control, often without user interaction or visible symptoms.
 
 POC https://www.youtube.com/watch?v=IpgypEw1bkw&t=2s
+
+for more info TG Mini0com 
+
+Email mini0com.x@gmail.com
