@@ -24,3 +24,5 @@ POC https://www.youtube.com/watch?v=IpgypEw1bkw&t=2s
 for more info TG Mini0com 
 
 Email mini0com.x@gmail.com
+![image alt](https://github.com/Mini0com/SIM-Jacker/blob/a5df308ab0473d8e132b1db537c09dc425a22d91/Screenshot%20from%202025-07-09%2022-18-54.png)
+![image alt](https://github.com/Mini0com/SIM-Jacker/blob/a5df308ab0473d8e132b1db537c09dc425a22d91/Screenshot%20from%202025-07-09%2022-19-42.png)
